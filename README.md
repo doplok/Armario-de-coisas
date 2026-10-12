@@ -1,3 +1,14 @@
+# Bem vindo
+
+aqui vai ter coisas aleatorias que eu fiz
+
+
+
+
+
+
+
+--------------------------------
 # O motivo engracado
 
 Se voce achou esse site voce ganhou na loteria!! aqui temos muitas variedades de curiosidades!
